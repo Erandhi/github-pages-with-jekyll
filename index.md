@@ -1,3 +1,5 @@
-# Welcome to my blog
+# Bienvenido@s al blog de Erandhi
 
-I'm glad you are here. I plan to talk about ...
+Me alegra que estén aquí, el objetivo de mi blog es compartir con ustedes cosas personales y académicas que me interesan
+
+
